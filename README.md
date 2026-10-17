@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-FOAF001103MMCLNTA1
+FOAF001103MMCLNTA1
